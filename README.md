@@ -1,5 +1,5 @@
 # 💫 About Me:
-                              Hi, I'm Deekshith B<br><br>* I'm  currently studying in Computer science and engineering in diploma<br><br>* my college name is https://vetbvlpolytechnic.edu.in/<br><br>* I am a youtuber , Editor and Basic graphics designer
+   Hi, I'm Deekshith B<br><br>* I'm  currently studying in Computer science and engineering in diploma<br><br>* my college name is https://vetbvlpolytechnic.edu.in/<br><br>* I am a youtuber , Editor and Basic graphics designer
 
 
 ## 🌐 Socials:
